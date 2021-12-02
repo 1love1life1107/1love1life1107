@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @1love1life1107
+- 👀 I’m interested in ...
+Internet Online marketing and business ventures such as online shops and building my business 
+- 🌱 I’m currently learning ...
+Coding, website design, marketing , sms marketing
+- 💞️ I’m looking to collaborate on ...
+Differnt business ventures 
+- 📫 How to reach me ...
+Email : sales@wrapfellas.shop
+<!---
+1love1life1107/1love1life1107 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
